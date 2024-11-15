@@ -1,5 +1,14 @@
 # Hello~
 
+<div align="center">
+  <img src="https://count.getloli.com/get/@:Bu1227?theme=moebooru">
+
+![Soldierp's GitHub stats](https://github-readme-stats.vercel.app/api?username=Bu1227&show_icons=true&theme=radical&locale=zh-tw)
+
+![trophy](https://github-profile-trophy.vercel.app/?username=Bu1227&theme=onedark)
+
+</div>
+
 <!--
 **Bu1227/Bu1227** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
