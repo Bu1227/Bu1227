@@ -1,4 +1,5 @@
 # Hello~🗣️💥💥💥🔥🔥💥🔥💥💥
+目前在 [多元世界團隊](https://github.com/mwtwnet) 擔任 [河馬](https://github.com/Soldierplayz6867) 的免費勞工
 
 <div align="center">
   <img src="https://count.getloli.com/get/@:Bu1227?theme=moebooru">
