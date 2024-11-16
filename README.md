@@ -1,4 +1,4 @@
-# Hello~
+# Hello~🗣️💥💥💥🔥🔥💥🔥💥💥
 
 <div align="center">
   <img src="https://count.getloli.com/get/@:Bu1227?theme=moebooru">
