@@ -10,6 +10,8 @@
 
 </div>
 
+# 瑠璃真的好可愛好好吃♡
+超喜歡她...
 <!--
 **Bu1227/Bu1227** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
